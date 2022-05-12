@@ -9,10 +9,4 @@ Mi piace zanca-bianca
 Mi piace anche raman
 
 
-
-
-
-
-
-
-VOGLIO BENE A TUTTI 
+che bello :) ahahaha 
