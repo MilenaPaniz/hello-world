@@ -4,9 +4,10 @@ Ciao, mi chiamo Giulia.
 
 Ciao MIlena e Lorenzo
 
-Mi piace zanca-bianca
+Mi piace z.-b.
 
-Mi piace anche raman
-
+Mi piace anche r.
 
 che bello :) ahahaha 
+
+Ciao ciao a tutti! Ho eliminato un po' di nomi per la privacy!
